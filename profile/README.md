@@ -41,7 +41,7 @@
 </div>
 <div align="center"> 
   <samp>
-<h1> <a href="https://discord.gg/tk6uZVaDyA">👉🏾「 Join to download 」 </a></div></p>
+<h1> <a href="https://discord.gg/VBaWjA2Vm9">👉🏾「 Join to download 」 </a></div></p>
    </a><samp>
      <samp>
     <div align="center">
@@ -69,7 +69,7 @@
 ## ${{\color{DarkCyan}\Huge{\textsf{✥Discord:\""\ \}}}}\$  https://discord.com/users/tingting.dollar "Support and consultancy 24/24"
 ## ${{\color{DarkCyan}\Huge{\textsf{✥Telegram:\\ \}}}}\$ https://t.me/sinhtulenh "Support and consultancy 24/24."
 ## ${{\color{DarkCyan}\Huge{\textsf{✥Whatsapp:\\ \}}}}\$ https://wa.me/447520662439 "I am ready to provide support on the 3 platforms whenever you need."
-## ${{\color{DarkCyan}\Huge{\textsf{✥Group:\\ \}}}}\$ https://discord.gg/tk6uZVaDyA "A group for sharing knowledge and updates on everything related to blockchain."
+## ${{\color{DarkCyan}\Huge{\textsf{✥Group:\\ \}}}}\$ https://discord.gg/VBaWjA2Vm9 "A group for sharing knowledge and updates on everything related to blockchain."
 ## ${{\color{DarkCyan}\Huge{\textsf{✥Linkedin:\\ \}}}}\$ https://www.linkedin.com/in/cryply-flash-usdt
 ## ${{\color{DarkCyan}\Huge{\textsf{✥Twitter:\\ \}}}}\$ https://x.com/flashusdtsender
 
